@@ -1,4 +1,5 @@
-### Hi there 👋
+![IMG_2526](https://github.com/Teramon1031/Teramon1031/assets/29009165/c77eed2d-dcb0-4f5d-b690-5307e4f1c54a)
+
 
 <!--
 **Teramon1031/Teramon1031** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
